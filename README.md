@@ -1,2 +1,0 @@
-# Leelexuan.github.io
-portfolio
